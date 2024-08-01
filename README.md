@@ -1,5 +1,5 @@
 
-# lara gomes🐱
+# Lara Gomes🐱
 ## oiee gente!  
   Bem vindos ao meu Perfil.  
   👀💋 
